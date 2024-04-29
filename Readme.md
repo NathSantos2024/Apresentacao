@@ -28,9 +28,12 @@ Estou prestes a concluir meu curso de Ciências Informáticas e embarcar em uma 
 Se você também é um(a) aventureiro(a) digital, ou simplesmente quer trocar algumas ideias sobre tecnologia e café, não hesite em me contatar! 
 
 ### 💌Contactos
+
 [LinkedIn](www.linkedin.com/in/nathalia-santos-757b21300)
 [E-mail](nathsantos.ti@gmail.com)
 [Discord](https://discord.gg/NWSSJmJ8)
+
+[Apresentação](https://nathsantos2024.github.io/Apresentacao)
 
 
 
