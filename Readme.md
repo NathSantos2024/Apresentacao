@@ -31,7 +31,7 @@ Se você também é um(a) aventureiro(a) digital, ou simplesmente quer trocar al
 
 [LinkedIn](www.linkedin.com/in/nathalia-santos-757b21300)
 [E-mail](nathsantos.ti@gmail.com)
-[Discord](https://discord.gg/NWSSJmJ8)
+[Discord](https://discord.gg/s5cQJqe4)
 
 [Apresentação](https://nathsantos2024.github.io/Apresentacao)
 
